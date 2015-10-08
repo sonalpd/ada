@@ -1,6 +1,6 @@
 #**SONAL P. DESAI**
 > 2018 - 87th Ave. NE, Clyde Hill, WA  
-> 630-605-5792 sonalpd@gmail.com 
+sonalpd@gmail.com 630-605-5792  
 
 ##**Experience**
 **K&L Gates, LLP**, Seattle, WA  
